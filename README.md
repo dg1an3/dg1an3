@@ -5,4 +5,4 @@
 - 💬 Ask me about DICOM and radiotherapy
 - 📫 How to reach me: DM
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: facts are not often fun
+- ⚡ Fun fact: I met Chuck Berry when I was four years old
